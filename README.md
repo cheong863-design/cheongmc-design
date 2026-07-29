@@ -89,8 +89,8 @@ To become a professional Front-end Developer by developing modern, responsive an
 
 ## 📫 Contact
 
-📧 your-email@gmail.com
+📧 cheong863@gmail.com
 
-💼 LinkedIn
+💼 +60 14-6382694
 
 🌐 Portfolio
